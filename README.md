@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ck9913@rit.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1oExTYO_i9A5oYPGWt57sXBXuWmsj9XeL/view?usp=sharing](https://drive.google.com/file/d/1oExTYO_i9A5oYPGWt57sXBXuWmsj9XeL/view?usp=sharing)
+- 📄 Know about my experiences [Chinmay's Resume](https://drive.google.com/file/d/1oExTYO_i9A5oYPGWt57sXBXuWmsj9XeL/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
