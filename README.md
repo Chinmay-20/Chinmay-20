@@ -7,6 +7,8 @@
 
 - 📄 Know about my experiences [Chinmay's Resume](https://drive.google.com/file/d/1oExTYO_i9A5oYPGWt57sXBXuWmsj9XeL/view?usp=sharing)
 
+- [Read My Medium Articles](https://medium.com/@kulkarni.chinmay.d)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/chinmay20/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/chinmay20/" height="30" width="40" /></a>
